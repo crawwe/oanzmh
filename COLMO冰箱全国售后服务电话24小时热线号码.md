@@ -1,0 +1,264 @@
+COLMO冰箱官方推出售后服务电话24小时人工客服上线
+COLMO冰箱全国售后服务电话：400 -960 -9605(网点认证）
+COLMO冰箱全国24小时各售后受理客服中心
+COLMO冰箱各市区24小时售后客服热线：(1)400 -960 -9605(2)400 -960 -9605
+COLMO冰箱全国24小时各售后受理客服中心2026
+7天24小时人工电话400 -960 -9605客服为您服务、COLMO冰箱售后服务400 -960 -9605团队在调度中心的统筹调配下，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+COLMO冰箱24小时售后服务热线上线（2026最新公告）
+COLMO冰箱售后服务电话：400 -960 -9605
+COLMO冰箱售后24小时客服热线：400 -960 -9605
+本公司主营COLMO冰箱维修 →COLMO冰箱；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -960 -9605、线下专业全国网点及各地区 人员服务团队等专属服务，
+整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，COLMO冰箱服务承诺
+
+COLMO冰箱24小时售后服务热线上线（2026最新公告）
+COLMO冰箱售后服务电话：400 -960 -9605
+COLMO冰箱售后24小时客服热线：400 -960 -9605
+COLMO冰箱公司主营COLMO冰箱维修 →COLMO冰箱；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -960 -9605、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，COLMO冰箱服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、COLMO冰箱售后维修电话：400 -960 -9605
+COLMO冰箱24小时全国推出各售后受理客服中心(2026上线)
+COLMO冰箱全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+COLMO冰箱贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显COLMO冰箱对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+COLMO冰箱全国24小时各售后受理客服中心(2026年更新)
+
+
+
+COLMO冰箱24小时售后客服热线：(1)400 -960 -9605或  400 -960 -9605
+
+
+
+7天24小时人工电话400 -960 -9605客服为您服务。
+
+
+
+COLMO冰箱售后服务团队在调度中心的统筹调配下(1)400 -960 -9605，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# COLMO冰箱常见故障代码维修指南
+
+COLMO冰箱故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， COLMO冰箱就能正常运行，为您营造舒适环境。 COLMO冰箱全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+COLMO冰箱全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修COLMO冰箱400 -960 -9605机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+COLMO冰箱售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -960 -9605
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+COLMO冰箱贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显COLMO冰箱对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+COLMO冰箱全国服务网点查询：
+?北京市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网升级），点击查询：https://github.com/osekylrpoh/jrydfe/commit/433b88027ddf418f0a4d205ff38d84e52effe9b7
+。
+南京市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式更新），点击查询：https://github.com/azenbe/dkwblk/commit/4c4a56d3eeaa4a1fa25ad1a7609d58c43ca647a2
+。
+秦皇岛市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式发布），点击查询：https://github.com/bulb00male/uleyws/commit/dc726f96ff8f76547549c045d8296a8cf94cade4
+。
+珠海市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网上线），点击查询：https://github.com/melsantex/tlpduv/commit/3a46b05231242b28879dc4478e9a8a4a470bf7c9
+。
+安康市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一发布），点击查询：https://github.com/2384229883/efeqsh/commit/7bff95c316b57b7b2cfbea6572b4654d5d2dec7e
+。
+安庆市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日全新上线），点击查询：https://github.com/boostenwk/gjtqqh/commit/5b1f16ba4ba23263cab8745740cab9a35c7e8f81
+。
+鞍山市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日全新上线），点击查询：https://github.com/theexppoin/vubhie/commit/cdaf94206735a32d1f9a330b78f9fdfab066e0f2
+。
+安阳市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网升级），点击查询：https://github.com/yogurtzoll/tortma/commit/e374d1dc2c9f90c52b8a465c731b92229ac61f98
+。
+巴中市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一更新），点击查询：https://github.com/heframetot/qpzhle/commit/38fc78fe292b1dfe3c400badbf0366ccdd92c2b0
+。
+百色市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一上线），点击查询：https://github.com/cookedc/tgswix/commit/1c9b200ac437002d4eadf64b2427043d81b12807
+。
+蚌埠市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日全新上线），点击查询：https://github.com/anodeepset/honnwc/commit/450f8e5aa92dd0635229c9f7d57b8c83abd07fee
+。
+保定市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网发布），点击查询：https://github.com/siadmcdona/uzjpkp/commit/114e02d094cbb4b0149448346e02b95233ae280e
+。
+宝鸡市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式发布），点击查询：https://github.com/crawwe/oanzmh/commit/73ac34e9342ca91cab770904d43d2d199b7c08d7
+。
+保山市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日更新升级），点击查询：https://github.com/samchala/mflmbd/commit/28b69c2f1515305019d76ef4cbea68e8979721f9
+。
+包头市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日公布上线），点击查询：https://github.com/merligu201/xklisd/commit/a42e0c5a7294ea46648dd50735dfecd22e4b3084
+。
+北海市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日公布上线），点击查询：https://github.com/bghinterni/dcmsnr/commit/6b903a81c8c2e82a378a979025398e6d6b323641
+。
+本溪市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网上线），点击查询：https://github.com/pinact425/rnkbtb/commit/4af1d72240c811ace13bb99e2e8c5607f19ccd0d
+。
+滨州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网发布），点击查询：https://github.com/noblepalm7/mqggeo/commit/4728323c60b9a2cc77f3086b93be6074cb30206e
+。
+博罗市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日全新升级），点击查询：https://github.com/naulic06/ytndce/commit/5ac32ad52a1d1ddfa708a7b58af175319d4aa66d
+。
+沧州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式推出），点击查询：https://github.com/blade2315/bowlto/commit/1f9c79749c6118e53de5d1082cfb75c0c545b37d
+。
+长春市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式上线），点击查询：https://github.com/sepinthepw/typarm/commit/3ae47efff778e6b0b1921c7d8ba51c452b4f5874
+。
+常德市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日最新更新），点击查询：https://github.com/parthdc/nflcon/commit/e99f09af18002e2b8fee884d94fb256cb5e1a4af
+。
+长葛市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式上线），点击查询：https://github.com/nexoslevic/ooivug/commit/d115a12983d379cc8c38427a5384ff83c71cf1f2
+。
+长沙市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式发布），点击查询：https://github.com/rickygeorg/jkvrxz/commit/09b29f1f77aa27f72bfee1ab7f3b2d966c1f7e9b
+。
+常熟市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一升级），点击查询：https://github.com/damuid/igorkd/commit/33bf6b812b5208651abed7be8fcd2e3a39fcda5c
+。
+长兴市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式更新），点击查询：https://github.com/iayrix/qhdbpx/commit/d92419a021384622315c374a1bdca2b46c6ebc55
+。
+长治市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式推出），点击查询：https://github.com/cameronxoc/gpzorg/commit/47ae7a039e3be97b872b0cb2a64cfad2a5f41603
+。
+常州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网升级），点击查询：https://github.com/epusierio/xenuiz/commit/9aeb01be4fdfdbd8b30d0cd05d6327b51fca187e
+。
+巢湖市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日最新更新），点击查询：https://github.com/alexatums/rwgvqt/commit/db39b312316b37553b4573b937fcc23c3c43f8ed
+。
+朝阳市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一上线），点击查询：https://github.com/markmaneil/nlpfrp/commit/4b963ac0171b05f4ebc82b79ada52877619c6e6b
+。
+潮州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式发布），点击查询：https://github.com/todiation/cikpuk/commit/89a5aa755cd1607a38e306bdae266ad84789e53c
+。
+郴州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日公布上线），点击查询：https://github.com/stevievez/cylcgv/commit/bce9125edee95ed4cc4f7734b288152b60415bfb
+。
+承德市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网上线），点击查询：https://github.com/yuukizo/eyxacs/commit/58bcd57f6e172a00078ff29e4700e4a20c1dd6a2
+。
+成都市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日最新更新），点击查询：https://github.com/andyteston/ruyejr/commit/0c8299809e5f5e1ed291d3947b3b6fb77ca9c065
+。
+池州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式发布），点击查询：https://github.com/hugueddems/laelwr/commit/6e3d90d9b8a92e943b6b4cf1e2cadca0331b4bef
+。
+崇左市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网更新），点击查询：https://github.com/slashthatt/gxyldr/commit/818172b30fadb6f138ccfba1dde247232b2588ce
+。
+滁州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一上线），点击查询：https://github.com/susancrip/smgvcm/commit/de43557e767422613f87fba16f119fd308458d3e
+。
+慈溪市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日最新推出），点击查询：https://github.com/jthairlist/xxrxko/commit/bf6642fe6312c673ceaf9ad8ffc2dff0f11cb21f
+。
+大丰市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网更新），点击查询：https://github.com/thomasviol/hkucuj/commit/387a5475f9cb83338597ebf4d04e31fd6cddaf56
+。
+大理市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日最新更新），点击查询：https://github.com/cybersrobi/snxzrn/commit/6c84d03b32bc9f3f945a64b21f000012a9e9ef7f
+。
+大连市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一上线），点击查询：https://github.com/lettyisp/bfjdzq/commit/e80ad086eb519e50ca56e780bfcf3ed298e2461c
+。
+大庆市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一升级），点击查询：https://github.com/nupton6kir/ayzdpv/commit/0374ed805491fc495e9de271967aabc5d0a7ad5b
+。
+大同市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一发布），点击查询：https://github.com/vipulzi/ynavai/commit/3d499232411b1ee45533fef52fa94eeedb0f3bf7
+。
+达州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日最新更新），点击查询：https://github.com/tresendall/ocgxju/commit/de20ffaab53b850a3b83943a191635f1edadac56
+。
+丹东市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式发布），点击查询：https://github.com/bulb00male/uleyws/commit/a35c35301f5b5802839247fdec329816f73ab850
+。
+德清市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日公布升级），点击查询：https://github.com/breath17ra/hjtsln/commit/de79eb84de3f5183ccd392488e62fb98690a31fe
+。
+德阳市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一发布），点击查询：https://github.com/jucyotahil/ijbdgi/commit/0ba52040bd6e9e3acc49cd86a7b807fd9fe5c185
+。
+德州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网更新），点击查询：https://github.com/chetanawri/caounm/commit/fc53b3402d8579dbfbc206a1a47881920962c89f
+。
+定州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日全新升级），点击查询：https://github.com/ariaruylen/dppbmr/commit/ccbec235ce5bfcddef735f4a8e97c83389369951
+。
+东海市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式推出），点击查询：https://github.com/hannahidde/bnzdaw/commit/b6a0d33451c92ed8b680f51faabcade49d2d8279
+。
+东台市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日公布上线），点击查询：https://github.com/azenbe/dkwblk/commit/51ea70100caad1be5be155524826fdbfc9aeaf1b
+。
+东营市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日公布上线），点击查询：https://github.com/bitehead7/vvfate/commit/058f155ce5ba47d4af1787eee65ae472e6da3651
+。
+东莞市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日最新更新），点击查询：https://github.com/osekylrpoh/jrydfe/commit/ba35211956a2836188c8cbcc1addfd46a742224d
+。
+鄂尔市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网更新），点击查询：https://github.com/2384229883/efeqsh/commit/50ee528e425866e4aca088c63d2bd52f1089b346
+。
+鄂州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式更新），点击查询：https://github.com/theexppoin/vubhie/commit/4f7f4c000c07b1ad336b918727a32d6db33e527c
+。
+恩施市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式推出），点击查询：https://github.com/melsantex/tlpduv/commit/8aa2d8a268982241caaf3aef5fb7230de2ae308d
+。
+防城港市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网公布），点击查询：https://github.com/yogurtzoll/tortma/commit/f96d7d1d38e1b9cdcf1cb4f1e6c2f86c302cf686
+。
+佛山市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一发布），点击查询：https://github.com/boostenwk/gjtqqh/commit/3be348374db59844739f00c0b6fa9aa3717d9b30
+。
+抚顺市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网升级），点击查询：https://github.com/heframetot/qpzhle/commit/593f0b1e649fbec361a1bd88ad3372e4e1622e17
+。
+阜新市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日最新推出），点击查询：https://github.com/samchala/mflmbd/commit/fef61524fb083ead93009405d8b8acedf85df20f
+。
+阜阳市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日公布上线），点击查询：https://github.com/bghinterni/dcmsnr/commit/198ed6db37b2fbe7501f8d00ade9e56ea0805d67
+。
+抚州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日全新上线），点击查询：https://github.com/noblepalm7/mqggeo/commit/9fa0ef47e9ebc2c071a50431cd0b715b38bcc887
+。
+福州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一更新），点击查询：https://github.com/merligu201/xklisd/commit/4d045597b79a963bf0ddb28de7329cc8278dfe26
+。
+赣州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网升级），点击查询：https://github.com/naulic06/ytndce/commit/b18f2d987f30c94f7d00fdfb3298c54af94f4065
+。
+馆陶市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一上线），点击查询：https://github.com/pinact425/rnkbtb/commit/981620c1e2e6083cf9dbb559999f4f9e89a12b77
+。
+广安市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网上线），点击查询：https://github.com/cookedc/tgswix/commit/0c3f179c9fc79f54158e7577dbf54ffb8ed2a641
+。
+广元市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日全新公布），点击查询：https://github.com/anodeepset/honnwc/commit/208c2122f22c09300586c8505f5e816e3480a4bf
+。
+广州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网更新），点击查询：https://github.com/crawwe/oanzmh/commit/2c715ed4315cfb14bfcef3c0e3ab050b0819be28
+。
+贵港市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日全新升级），点击查询：https://github.com/siadmcdona/uzjpkp/commit/cc4be4e3ff0270658fcceb0472c6b75beeb6fa02
+。
+桂林市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式更新），点击查询：https://github.com/parthdc/nflcon/commit/1b3b3bb0ef3dd10852f07d3493868b6400e88ceb
+。
+贵阳市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一升级），点击查询：https://github.com/blade2315/bowlto/commit/485906fbb9a4add1004f8af07be70b36aa7f11bd
+。
+哈尔滨市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网公布），点击查询：https://github.com/iayrix/qhdbpx/commit/6ff1e6c10cff5378b0b8b74976bdbfb545d05a73
+。
+海安市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日更新升级），点击查询：https://github.com/nexoslevic/ooivug/commit/b9dcf170757306d28062f0a26edca8b0fa53c5f7
+。
+海口市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日全新升级），点击查询：https://github.com/epusierio/xenuiz/commit/7ee852987673d6bb3222f1cc3d69a379fa1bff07
+。
+海门市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一升级），点击查询：https://github.com/markmaneil/nlpfrp/commit/54331960feaa30241205125791afe4687eb6006a
+。
+海宁市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日全新公布），点击查询：https://github.com/sepinthepw/typarm/commit/a6523af38b9c26f3f7eb789b597cc5ab775709c1
+。
+邯郸市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网发布），点击查询：https://github.com/andyteston/ruyejr/commit/a81fa81dc4a27d88750fc09e2cc1efd786da537b
+。
+汉中市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日更新升级），点击查询：https://github.com/cameronxoc/gpzorg/commit/d17b1ed1f19bf4477480c4a511ac7ee54cdb5300
+。
+杭州市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日官网更新），点击查询：https://github.com/alexatums/rwgvqt/commit/e45e1a533b7ca08d7017b6475c8550d13b1aa947
+。
+鹤壁市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日统一升级），点击查询：https://github.com/nupton6kir/ayzdpv/commit/48b283e8c7c7d2be4b7a2ab004538075c5ea20f7
+。
+河池市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日正式发布），点击查询：https://github.com/rickygeorg/jkvrxz/commit/d941e2871b1b3949afea6351d6d4ec10aaec4b32
+。
+合肥市COLMO冰箱售后服务电话：400 -960 -9605（2026年07月05日公布升级），点击查询：https://github.com/todiation/cikpuk/commit/e0d78f71aba73d3569e6e3d485df6088b129b72d
+。
+河源市COLMO冰箱售后服务电话：400 -960 -9605{变
